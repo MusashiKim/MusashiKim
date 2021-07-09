@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MusashiKim
+- 👀 I’m interested in anything related to anime and gaming
+- 🌱 I’m currently learning what u learn in school
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me don't
